@@ -1,4 +1,4 @@
-##Privacy Policy
+## Privacy Policy
 Last Updated: [Insert Date]
 
 1. Introduction
